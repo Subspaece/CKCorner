@@ -4,7 +4,7 @@
 
 > # $\color{#ff0000}{\textsf{C00lKID . Fictive . SYSKID / LITTLE}}$
 
-![Uploading tumblr_f0e586b962edb878446999f45f9404df_9df0d1da_1280.png…]()
+<img width="751" height="423" alt="tumblr_f0e586b962edb878446999f45f9404df_9df0d1da_1280" src="https://github.com/user-attachments/assets/ea0b28a6-7f8f-4587-b81e-d23d9cd023de" />
 
 
 
